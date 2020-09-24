@@ -2,4 +2,4 @@
 tumtum fanpage
 ณัฐวัส เปี่ยมขำดี 
 13610014
-![image](pic.jpg)
+![image](noooo.jpg)
